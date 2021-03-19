@@ -6,8 +6,8 @@
 
 Hello World!
 
-I'm Zakaria Baashe , currently I'm a Cypersecurity Student  Somaliland So , 
-passionate about learning new things and securing systems and solve computer issues.
+I'm Zakaria Baashe , currently I'm  Cypersecurity Student in Somaliland SO , 
+passionate about learning new things and securing systems also solving computer issues.
 
 Stay free to know a little more about my life, follow me on my networks where I share a little more about myself.
 I love to make new friends and learn new things.   💻   🚀
